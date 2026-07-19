@@ -1,1 +1,1 @@
-Yeni öğrendiğim kelimeleri  saklıyorum
+I am saving words that new learn
