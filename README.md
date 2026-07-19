@@ -1,0 +1,1 @@
+Yeni öğrendiğim kelimeleri  saklıyorum
