@@ -1,1 +1,1 @@
-I am saving words that new learn
+I am saving the new words I learn
